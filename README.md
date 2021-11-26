@@ -1,5 +1,4 @@
-# A-Spec
-Mazda (Mazdaspeed) A-Spec Stickers from the 1990s
+# Mazda (Mazdaspeed) A-Spec Stickers from the 1990s
 
 I'm an engineer and not a designer. So I have no idea about how to do this in Illustrator, so I did the whole thing in Photoshop. (So I got no AI file for you, sorry. Please don't hate me)
 
